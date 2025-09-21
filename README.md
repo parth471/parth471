@@ -1,4 +1,4 @@
-Hi, I’m @parth471.
+Hi, I’m Parth.
   
 
 <!---
